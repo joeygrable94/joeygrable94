@@ -8,7 +8,7 @@ I am Joseph Grable, but you can call me Joey. I specialize in connecting content
 
 🤔 I am seeking guidance on scaling applications for enterprises and effectively managing small teams of designers and developers.
 
-📫 pReach out to me at [hello@joeygrable.com](mailto://hello@joeygrable.com) or visit my website, [JoeyGrable.com](https://joeygrable.com).
+📫 Reach out to me at [hello@joeygrable.com](mailto://hello@joeygrable.com) or visit my website, [JoeyGrable.com](https://joeygrable.com).
 
 💬 Feel free to ask me about calligraphy, type design, or bookmaking! My journey began in graphic arts and evolved into a computer programmer; I thrive at the intersection of design and technology.
 
